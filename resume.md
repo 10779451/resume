@@ -15,8 +15,8 @@ Current student working toward Bachelor of Science in Computer Science and seeki
 ## Skills
 
 - People Person. I get along well with others
-Team Work. Was a part of a baseball team most of my life and had success.
-Leadership. Was a team captain on the baseball team
+- Team Work. Was a part of a baseball team most of my life and had success.
+- Leadership. Was a team captain on the baseball team
 
 
 ## Experience
