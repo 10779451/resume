@@ -1,6 +1,6 @@
 
 # Aaron L. Garside
-#### (801) 592-7410 | aarongarside2@gmail.com | Lehi, UT 84043
+#### (000) 123-4567 | myemail@email.com | Lehi, UT 12345
 
 
 
